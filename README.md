@@ -1,0 +1,1 @@
+# Funami580-Aegisub-Scripts
